@@ -1,1 +1,7 @@
-# ADFdssdfsd
+Lenovo gave sneak peek of a newcomer who could surpass Apple's iPhone X in an attempt to offer a real smartphone in full screen.
+Apple iPhone X is very close, but for a small bezel and its distinctive notch, but the Lenovo Z5 seems to go further, according to a sketch presented by the vice president of Chang Cheng on Weibo that he first noticed CNET Time
+The device expires in June and Cheng said it is the result of "four technological advancements" and "18 patented technologies", but did not provide further details.
+The executive has already shared some of the design on Weibo, claiming that it has a screen percentage percentage of 95 percent. In fact, the image seems to show a device without a higher screen like the iPhone X.
+The most important question is: where Lenovo will place the front camera, microphone, sensors and other components are not clear at the moment. Several Android phone manufacturers have copied Apple's design quite boldly. It's ironic given that Apple was widely ridiculed when it unveiled the phone. However, the device sold well and this caught the attention of Huawei, Essential, Asus Andy Rubin and others who kissed the notch. The design is so common now that Google has even moved the watch to Android P to make room for the notch.
+
+Time will tell what Lenovo adds to the conversation. The company urgently needs a successful phone, trailing behind Xiaomi, Oppo, Vivo and Huawei in their home country of China, and the hype in the Z5 is certainly enough to generate hope.
